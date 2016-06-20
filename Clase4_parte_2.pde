@@ -1,0 +1,1 @@
+La segunda parte de la clase la hice en pareja con la compañera Alicia
